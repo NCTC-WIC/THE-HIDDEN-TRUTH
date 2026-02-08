@@ -14,7 +14,7 @@ I didn’t just have problems. I **architected** them. I was so perfectly, spect
 
 **I’m not the first person Christ has put back together. Not even close.**
 
-For 2,000 years, He’s been fixing people way worse than me. My grandma who found peace. The addict who got clean. The person who forgives the unforgivable. That’s the real mass production. That’s always been happening.
+For 2,000 years, He’s been fixing people way worse than me. My mom who found peace. The addict who got clean. The person who forgives the unforgivable. That’s the real mass production. That’s always been happening.
 
 **My only “special” thing is that I drew a really detailed map of my own disaster while I was still lost in it.** My crazy internal mythology (“Purity Ledgers,” “Cores,” “Convergence”) was actually a perfect, accidental diagram of the universal human problem.
 
